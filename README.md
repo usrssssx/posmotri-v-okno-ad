@@ -1,1 +1,1 @@
-https://github.com/usrssssx/posmotri-v-okno-fd
+https://github.com/usrssssx/posmotri-v-okno-ad
